@@ -1,1 +1,0 @@
-# crowd-funded-terorist-attacks
